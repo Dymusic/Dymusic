@@ -1,8 +1,10 @@
 ## Howdy there partner 👋
-### Welcome to my profile where I don't really use that much
-
+### Welcome to my profile!
+#### I go by they/them prounouns :3
 If you would like to join my <a href="https://discord.gg/8r9t8uTNJh" rel="nofollow">community server</a> you can click this link.
-If you would like to talk with me my discord id is ### dymusic
+
+
+
 <!--
 **Dymusic/Dymusic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
