@@ -1,7 +1,7 @@
 ## Howdy there partner 👋
 ### Welcome to my profile! 😃
 #### I go by they/them prounouns :3
-If you would like to join my <a href="https://discord.gg/8r9t8uTNJh" rel="nofollow">community server</a> you can click this link.
+I have a <a href="https://discord.gg/8r9t8uTNJh" rel="nofollow">community server!</a>
 
 
 
