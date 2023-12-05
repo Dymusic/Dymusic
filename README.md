@@ -1,7 +1,7 @@
 ## Howdy there partner 👋
 ### Welcome to my profile where I don't really use that much
 
-If 
+My <a href="https://discord.gg/rxFhY2DhpT" rel="nofollow">Discord server</a>
 <!--
 **Dymusic/Dymusic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
