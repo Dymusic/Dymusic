@@ -1,5 +1,5 @@
-## Howdy there partner 👋
-### Welcome to my profile! 😃
+## Howdy there partner o/
+### Welcome to my profile! c:
 #### And yes, I do go by they/them prounouns :3
 I have a <a href="https://discord.gg/8r9t8uTNJh" rel="nofollow">community server!</a>
 
