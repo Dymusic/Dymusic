@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Howdy there partner 👋
+## Welcome to my profile where I don't really use that much
 <!--
 **Dymusic/Dymusic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
