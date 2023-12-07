@@ -3,7 +3,7 @@
 #### And yes, I do go by they/them prounouns :3
 I have a [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://discord.gg/8r9t8uTNJh) server
 <div></div>
-And a  [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@UCDXmggL5ffzP565yWx3GxeQ) channel!
+And a [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@UCDXmggL5ffzP565yWx3GxeQ) channel!
 
 
 
