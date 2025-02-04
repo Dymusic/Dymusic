@@ -6,7 +6,7 @@
 #### And a [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://www.youtube.com/channel/UCDXmggL5ffzP565yWx3GxeQ) channel! (I NEVER upload)
 
 <!--
-I love u Ems <333 :3
+I should probably get rid of this
 <!--
 **Dymusic/Dymusic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
